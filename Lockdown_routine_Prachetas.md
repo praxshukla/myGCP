@@ -14,7 +14,7 @@ Also,I learned chanting **RUDRASTAK VANDANA** shloke from **RAMCHARITMANAS** and
 photo
 Thanks to my school,and respected teachers for providinhg us online classes on zoom, study matireals and quizes on Argus. Every day after my pooja and breakfast, I work on my school assignments and attend classes.
 
-![Home Study](http://praxshukla/myGCP/img/Home Study.png)
+![Home Study](https://github.com/praxshukla/myGCP/blob/master/img/Home%20Study.png)
 
 I collected 11,880 euroes on Argus.
 photos
