@@ -9,6 +9,11 @@ But,now it has been more than a month we are locked in owr house and guess what 
 
 I get up in the morning and insted of rushing to school,I started spirituality
 photo
-Also,I learned chanting 'RUDRASTAK VANDANA'a shloke from 'RAMCHARITMANAS'every morning
+Also,I learned how to chant 'RUDRASTAK VANDANA'a shloke from 'RAMCHARITMANAS'and chant it every morning
 photo
-Thanks to my school,and respected teachers for providin us online classes on zoom,study matireals and quizes on Argus.
+Thanks to my school,and respected teachers for providin us online classes on zoom,study matireals and quizes on Argus.Every dayafter my pooja and breakfast ,I work on my school assignments and attend classes.I collected 11,880 euroes.
+photos
+
+For my daily entertainment play a video game called MINECRAFT.
+I take care of the evening tea for my perents,prepar salads,and some time kneeding.
+To stay healthy in this lokdown I practice yoga every day for atleast 30 to 45 minuts owr family dose 13 rpunds of 'SUFANAMASCAR'and'PRAYANAM'.
