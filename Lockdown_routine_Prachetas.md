@@ -7,5 +7,8 @@ Moreover,it has changed the way we lived ,before the lockdown we used to get up 
 
 But,now it has been more than a month we are locked in owr house and guess what we learned to still have fun with owr family and continue doing lots of activities,which is ceryainly a new experirnce .Here is how I am spending my days in lockdown
 
-I get up in the morning and insted of rushing to school
-
+I get up in the morning and insted of rushing to school,I started spirituality
+photo
+Also,I learned chanting 'RUDRASTAK VANDANA'a shloke from 'RAMCHARITMANAS'every morning
+photo
+Thanks to my school,and respected teachers for providin us online classes on zoom,study matireals and quizes on Argus.
