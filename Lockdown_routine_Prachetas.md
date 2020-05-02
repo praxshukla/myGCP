@@ -6,13 +6,16 @@ We know that **COVID-19** pandamic is a phinominon that happens once in owr life
 
 Moreover,it has changed the way we lived, before the lockdown we used to get up in the morning and rush for school.In the evening we used to get to gather in the sciety prayground and enjoy the company of friends and play sports.
 
-But,now it has been more than a month we are locked in owr house and guess what we learned to still have fun with owr family and continue doing lots of activities,which is ceryainly a new experirnce .Here is how I am spending my days in lockdown
+But, now it has been more than a month we are locked in our house and guess what we learned to still have fun with our family and continue doing lots of activities, which is certainly a new experirnce. Here is how I am spending my days in lockdown
 
-I get up in the morning and insted of rushing to school,I started spirituality
+I get up in the morning and insted of rushing to school,I started spirituality.
 photo
-Also,I learned how to chant 'RUDRASTAK VANDANA'a shloke from 'RAMCHARITMANAS'and chant it every morning
+Also,I learned chanting **RUDRASTAK VANDANA** shloke from **RAMCHARITMANAS** and chant it every morning.
 photo
-Thanks to my school,and respected teachers for providin us online classes on zoom,study matireals and quizes on Argus.Every dayafter my pooja and breakfast ,I work on my school assignments and attend classes.I collected 11,880 euroes.
+Thanks to my school,and respected teachers for providinhg us online classes on zoom, study matireals and quizes on Argus. Every day after my pooja and breakfast, I work on my school assignments and attend classes.
+![Home Study](img/Home Study.png)
+
+I collected 11,880 euroes on Argus.
 photos
 
 For my daily entertainment play a video game called MINECRAFT.
